@@ -1,7 +1,7 @@
 # Hi Friend
 
-> I'm defaced, a curious shack
-> my tg: @d3f4ced
+> I'm spotted, a curious shack
+> my telegram: @whosp0tted
 
 
 ```bash
